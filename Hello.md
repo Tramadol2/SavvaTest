@@ -6,8 +6,4 @@
 
 отпути не путю
 
-fdfdsf
-dsfdsfdsfds
-fdsfdsf
-sfdsfdsf
-dsfdsfdsf
+soska
